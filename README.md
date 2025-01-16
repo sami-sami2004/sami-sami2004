@@ -2,3 +2,5 @@
 
 BSCS Major 💻
 
+
+Here is my profile.. https://github.com/sami-sami2004  
